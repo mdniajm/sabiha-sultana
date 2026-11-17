@@ -1,2 +1,2 @@
 # sabiha-sultana
-Sabiha Sultana – Sales Navigator &amp; lead generation srvices site
+Sabiha Digital – Sales Navigator & lead generation services site (salesnavhub.com)
